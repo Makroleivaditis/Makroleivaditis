@@ -1,16 +1,14 @@
-### Hi there 👋
+Hello there ! 
 
-<!--
-**Makroleivaditis/Makroleivaditis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Inspired and amateur coder here, freelancing my way through GitHub !  ⚡⚡⚡
 
-Here are some ideas to get you started:
+I am mainly working on C++ , C# and Python projects, but definitely want to improve on other languages as well. Taking on challenging programming tasks and optimizing them is always exciting for me, since it requires more brain squeezing. 🤔
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I absolutely love riddles and puzzles, especially math related ones. Always eager to learn and develop things I already know !
+
+Collaboration offers are always welcome, from very small to very big ideas and projects.  👯
+
+💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬
+
+
+Feel free to contact me at: makroleivaditis@gmail.com           📫
