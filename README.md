@@ -8,7 +8,7 @@ I absolutely love riddles and puzzles, especially math related ones. Always eage
 
 Collaboration offers are always welcome, from very small to very big ideas and projects.  👯
 
-💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬
+💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬💬
 
 
 Feel free to contact me at: makroleivaditis@gmail.com           📫
